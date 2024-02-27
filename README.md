@@ -1,1 +1,5 @@
 # Boinga
+The meaning and origin of the word Boinga or Bhoinga is from Bangia (Banga + Ya = Bangia = Boinga). From the Pali language, it is an Ethnic regional word spoken by the Assamese, Chakma and Chittagonian people’s. Which is Noun as term.
+In Assam, Bengalis live in the Barak Valley and lower Brahmaputra region. Boinga or Bongal are mainly called Bangalis living in the state.
+People north of the Feni River or Chittagong region who do not speak the Chittagoian language and do not adopt the Chittagoian culture and traditions are called Boinga. In Chittagong city also the word Boinga is used in the same sense. The word Boinga in Chittagong region comes from the local Buddhist Arakanese (Rakhine) of Arakan state. At that time, the natives of Arakan, starting from Bhulua (Noakhali) in the north of Arakan State and the Bengali speaking areas, especially the natives of the neighboring Bengal region, had the practice of calling Boinga.
+The Chakma Ethnic group uses Boinga words more. Which means Nomad. Those who move around like nomads and settle in fixed places are called Boinga.
